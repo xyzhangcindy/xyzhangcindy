@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @xyzhangcindy
+- 👀 I’m tech recruiter
+- 📫 xiaoyingzhang@taichi.graphics
