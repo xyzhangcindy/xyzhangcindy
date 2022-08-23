@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @xyzhangcindy
-- 👀 I’m tech recruiter
+- 👀 I’m HRBP
 - 📫 xiaoyingzhang@taichi.graphics
