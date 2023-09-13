@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @xyzhangcindy
 - 👀 I’m HRBP
-- 📫 xiaoyingzhang@taichi.graphics
+- 📫 xiaoyingzhang@meshy.ai
